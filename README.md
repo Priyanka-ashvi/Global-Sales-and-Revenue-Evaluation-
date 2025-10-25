@@ -27,3 +27,11 @@ Here are a few examples of what you can do with the Financial Reporting & Analys
 - Perform comparative analysis across different time periods or business units.
 
 Happy analyzing! 📊💼
+![Image](https://github.com/user-attachments/assets/c6679aaf-adc5-4e7c-9ba6-3f82bfe1b44f)
+
+![Image](https://github.com/user-attachments/assets/22404c19-aaa6-4659-89d1-e754e7c70cae)
+
+![Image](https://github.com/user-attachments/assets/c07c360c-4c80-4d1c-9446-932e6221dfb1)
+
+![Image](https://github.com/user-attachments/assets/c7a2912f-9906-47e2-b325-41716389f801)
+
